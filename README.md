@@ -1,4 +1,4 @@
-### Oi! Eu sou a Carina Silva 👋
+### Oi! Eu sou a Carina 👋
 
 <div align="center">
   <a href="https://github.com/silvacarina">
